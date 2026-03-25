@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ApakohZzz
+👋 Hi, I’m @ApakohZzz
 - a game designer
 - a vibe coding user
 
